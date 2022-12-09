@@ -4,8 +4,8 @@
 
 * **Phone:** +995 551 502 553
 * **E-mail:** bellaplus16@gmail.com
-* **GitHub:** [Iz111] (https://github.com/Iz111)
-* **Telegram:** [izi00110] (https://t.me/izi00110)
+* **GitHub:** [Iz111](https://github.com/Iz111)
+* **Telegram:** [izi00110](https://t.me/izi00110)
 
 # **About Me**
 
